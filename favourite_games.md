@@ -10,7 +10,7 @@ I'll start things off with my favourite game!
 * Armored Core 6 *(2023)*
 * Balatro *(2024)*
 * Baldur's Gate *(1998)*
-* Baldur's Gate 3 *(2024)*
+* Baldur's Gate 3 *(2023)*
 * Bayonetta 2 *(2014)*
 * Bloodborne *(2015)*
 * Broken Arrow *(2025)*
